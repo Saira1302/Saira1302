@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-👋 Hi, I’m Saira Bano<br>👀 I’m interested in Programming and Designing.<br>📫 How to reach me https://www.linkedin.com/in/saira-bano-2a3754282<br>😄 Pronouns: She/her/hers.<br>⚡ Fun fact: I ❤️ cats.
+👋 Hi, I’m Saira Bano<br>👀 I’m interested in Marketing and Business Growth.<br>📫 How to reach me https://www.linkedin.com/in/saira-bano-2a3754282<br>😄 Pronouns: She/her/hers.<br>⚡ Fun fact: I like to travel and eat different food.
 
 
 ## 🌐 Socials:
